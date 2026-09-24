@@ -1,3 +1,5 @@
+![If Fate Chose Differently - Russian](images/22731-1779279304-1462120058.webp)
+
 # If Fate Chose Differently - Russian
 
 Русская локализация мода [If Fate Chose Differently - Wyll Pact Points Overhaul](https://www.nexusmods.com/baldursgate3)
